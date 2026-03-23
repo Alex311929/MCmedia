@@ -1,4 +1,1 @@
-[вКЛЮЧайся №3.pdf](https://github.com/user-attachments/files/26174909/3.pdf)# MCmedia
-Статьи и новости
-
-[Uploading вКЛЮЧайся №3.pdf…](вКЛЮЧайся №3)
+<a href="вКЛЮЧайся №3.pdf" target="_blank">Открыть документ в браузере</a>
